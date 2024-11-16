@@ -2,7 +2,7 @@
 
 BA in biochemistry
 
-Experience:
+Experience: 2
 -
 -
 -Undergraduate research
