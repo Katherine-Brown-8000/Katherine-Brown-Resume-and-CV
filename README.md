@@ -1,3 +1,3 @@
 # Resume
 
-![Alt](https://github.com/Katherine-Brown-8000/Resume-CV/blob/main/Resume%202024%20November%204.pdf)
+![Alt](https://github.com/Katherine-Brown-8000/Katherine-Brown-Resume-and-CV/blob/main/Resume%202025%20January%201.pdf)
